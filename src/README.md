@@ -10,5 +10,4 @@ Whether you're looking to enhance your performance at work, accomplish personal 
 
 So if you're ready to boost your productivity and achieve your goals, let's dive into "The Productivity Method: Creating a System that Works for You".
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
