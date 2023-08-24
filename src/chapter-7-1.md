@@ -1,5 +1,3 @@
-Identifying Common Obstacles to Productivity
-=====================================================
 
 In this chapter, we will explore common obstacles that can hinder productivity and provide strategies for overcoming them. By identifying and addressing these challenges, you can create a more efficient and effective system that works for you.
 

@@ -1,5 +1,3 @@
-Establishing Metrics for Success
-=========================================
 
 In this chapter, we will explore the importance of establishing metrics for success when creating a productivity system that works for you. By setting clear and measurable indicators of progress, you can track your achievements, stay motivated, and ensure that your efforts align with your goals.
 

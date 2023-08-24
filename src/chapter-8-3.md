@@ -1,5 +1,3 @@
-Encouraging a Culture of Effective Productivity
-==============================================================================================
 
 Maximizing productivity efficiency not only requires individual effort, but also a culture that supports and encourages effective productivity. By fostering a culture of effective productivity, organizations can achieve greater levels of success and fulfillment for their employees.
 

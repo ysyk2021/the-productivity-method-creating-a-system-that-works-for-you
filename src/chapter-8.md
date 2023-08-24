@@ -1,5 +1,3 @@
-Chapter 7: Maximizing Productivity Efficiency
-=============================================
 
 In this chapter, we'll explore strategies for maximizing productivity efficiency, including building processes and frameworks to support effective productivity, leveraging technology, and encouraging a culture of effective productivity.
 

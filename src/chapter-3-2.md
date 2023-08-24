@@ -1,5 +1,3 @@
-Techniques for Developing a Productivity Mindset
-=========================================================
 
 In this chapter, we will explore techniques to help you develop a productivity mindset. Cultivating a productivity mindset is essential for maximizing your efficiency and achieving your goals. By adopting these techniques, you can transform your thinking patterns and habits to optimize your productivity.
 

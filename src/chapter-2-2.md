@@ -1,5 +1,3 @@
-Types of Productivity
-==============================
 
 In this chapter, we will explore different types of productivity that exist beyond the traditional understanding of completing tasks. Understanding these various dimensions of productivity can help you develop a well-rounded approach to achieving your goals and maximizing your effectiveness.
 

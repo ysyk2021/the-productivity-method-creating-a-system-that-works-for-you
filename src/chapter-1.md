@@ -1,5 +1,3 @@
-Introduction
-============
 
 Welcome to "The Productivity Method: Creating a System that Works for You". In this book, we'll explore how to develop a productivity system that fits your needs and helps you achieve sustained success in both personal and professional contexts.
 

@@ -1,5 +1,3 @@
-Chapter 6: Overcoming Obstacles
-===============================
 
 Obstacles are a natural part of the productivity process, and it's essential to develop strategies for overcoming them. By identifying common obstacles, developing effective strategies for overcoming them, and building resilience in the face of setbacks, individuals can maintain focus, motivation, and productivity.
 

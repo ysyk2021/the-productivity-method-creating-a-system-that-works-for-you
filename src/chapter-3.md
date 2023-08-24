@@ -1,5 +1,3 @@
-Chapter 2: Developing a Productivity Mindset
-============================================
 
 In this chapter, we'll explore the importance of developing a productivity mindset and techniques for cultivating positive beliefs and habits that support productivity. We'll also discuss how to overcome resistance to productivity by identifying and addressing negative thought patterns or limiting beliefs.
 

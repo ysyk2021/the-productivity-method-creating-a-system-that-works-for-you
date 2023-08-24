@@ -1,5 +1,3 @@
-Incorporating Self-Care into Productivity
-==================================================
 
 In this chapter, we will explore the importance of incorporating self-care into your productivity system. Often, when we think about productivity, we focus solely on efficiency and output. However, neglecting self-care can lead to burnout, decreased motivation, and ultimately hinder our overall productivity. By prioritizing self-care, we can enhance our well-being, maintain sustainable productivity levels, and achieve long-term success. Let's delve into strategies for incorporating self-care into your productivity routine.
 

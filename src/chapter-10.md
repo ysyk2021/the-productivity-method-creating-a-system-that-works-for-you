@@ -1,5 +1,3 @@
-Chapter 9: Applying Productivity to Professional Growth
-=======================================================
 
 Productivity can be a powerful tool for achieving professional growth and success. By applying productivity principles to career development, setting goals for professional growth, and building skills through productivity, individuals can achieve greater levels of fulfillment and accomplishment in their professional lives.
 

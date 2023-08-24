@@ -1,5 +1,3 @@
-Celebrating Achievements
-==============================================================================
 
 Tracking progress and celebrating success are essential components of maintaining productivity and achieving sustained success. By celebrating achievements, individuals can stay motivated, maintain momentum, and build a positive mindset.
 

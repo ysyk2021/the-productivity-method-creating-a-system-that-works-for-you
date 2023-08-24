@@ -1,5 +1,3 @@
-Developing a System for Prioritizing Tasks
-=======================================================================================
 
 Effective time management requires prioritization of tasks to ensure that the most important work is completed first. By developing a system for prioritizing tasks, individuals can focus on what's most important and accomplish their goals efficiently.
 

@@ -1,5 +1,3 @@
-Overcoming Resistance to Productivity
-==============================================
 
 In this chapter, we will explore common obstacles and resistance that may hinder productivity. Overcoming these barriers is essential for creating a system that works for you. By understanding and addressing the underlying causes of resistance, you can develop strategies to overcome them and boost your productivity.
 

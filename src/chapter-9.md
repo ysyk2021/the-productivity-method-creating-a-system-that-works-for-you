@@ -1,5 +1,3 @@
-Chapter 8: Applying Productivity to Personal Growth
-===================================================
 
 Productivity can be a powerful tool for achieving personal growth and self-improvement. By applying productivity principles to personal development, setting goals for personal growth, and incorporating self-care into productivity, individuals can achieve greater levels of fulfillment and accomplishment in their personal lives.
 

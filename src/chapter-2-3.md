@@ -1,5 +1,3 @@
-The Benefits of Effective Productivity
-===============================================
 
 In this chapter, we will explore the numerous benefits that effective productivity can bring to our personal and professional lives. Understanding these benefits can provide motivation and inspiration to develop and maintain a productive system that works for you.
 

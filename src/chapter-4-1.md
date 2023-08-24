@@ -1,5 +1,3 @@
-Identifying Your Goals and Priorities
-==============================================
 
 In this chapter, we will explore the crucial step of identifying your goals and priorities when creating a productivity system that works for you. Understanding what you want to achieve and what matters most to you will help you align your actions and focus your energy on tasks that truly matter.
 

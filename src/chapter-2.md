@@ -1,5 +1,3 @@
-Chapter 1: Understanding Productivity
-=====================================
 
 In this chapter, we'll explore the concept of productivity and its various types. We'll also discuss the benefits of effective productivity and how it can help you achieve your goals.
 

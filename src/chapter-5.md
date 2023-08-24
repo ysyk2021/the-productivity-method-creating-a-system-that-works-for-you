@@ -1,5 +1,3 @@
-Chapter 4: Prioritizing and Time-Management
-===========================================
 
 In this chapter, we'll explore how to prioritize your tasks and manage your time effectively. By developing a system for prioritizing tasks, leveraging time-management tools and techniques, and managing distractions and interruptions, you can optimize your workflow, minimize stress, and achieve your goals more efficiently.
 

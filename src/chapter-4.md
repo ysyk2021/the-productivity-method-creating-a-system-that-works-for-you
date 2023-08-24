@@ -1,5 +1,3 @@
-Chapter 3: Creating a Productivity System
-=========================================
 
 In this chapter, we'll explore how to create a productivity system that works for you. By identifying your goals and priorities, developing a system for organizing and categorizing tasks, and choosing the right tools for productivity, you can optimize your workflow, minimize distractions, and achieve your goals more efficiently.
 
@@ -49,5 +47,4 @@ Conclusion
 Creating a productivity system is essential for maximizing efficiency and achieving sustained success. By identifying your goals and priorities, developing a system for organizing and categorizing tasks, and choosing the right tools for productivity, you can optimize your workflow, minimize stress, and achieve your goals more efficiently.
 
 Remember, the key to creating a productivity system is finding what works best for you. Experiment with different approaches until you find a system that supports your work style and helps you achieve your goals. With practice and persistence, you can create a productivity system that maximizes efficiency and leads to sustained success over time.
-
 
